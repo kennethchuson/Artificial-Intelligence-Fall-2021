@@ -1,1 +1,1 @@
-# Artificial-Intellignce-Fall-2021
+# Artificial-Intelligence-Fall-2021
